@@ -1,1 +1,1 @@
-apriman.github.io
+https://apriman.github.io/ulangtahun/
